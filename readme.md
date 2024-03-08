@@ -1,0 +1,1 @@
+to visit my website just copy thin link ang paste in on new tab search bar https://ticketforprelim-mintang.tiiny.site/
